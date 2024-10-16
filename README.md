@@ -9,11 +9,13 @@ I'm passionate about growing my knowledge in the IT industry, especially in prog
 📊 Spreadsheet & Data Entry Pro | Copywriting Expert
 
 🔥 Customer Service Champion
+
 • Deliver personalized, high-impact customer experiences
 • Handle inquiries, returns, and exchanges with ease
 • Skilled in complaint resolution, always with a positive attitude 😊
 
 💻 Tech-Savvy & Web Knowledgeable
+
 • Proficient in HTML, CSS, and PHP basics 🛠️
 • Eager to learn and expand my skills, particularly in programming
 • Spreadsheet wizard 🧮, turning raw data into actionable insights
