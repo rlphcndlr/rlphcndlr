@@ -2,7 +2,6 @@
 - 😄 Pronouns: He/Him
   
 🎓 Graduating Computer Science Student (2025)
-
 I'm passionate about growing my knowledge in the IT industry, especially in programming, and I'm always open to learning new skills to better support your tech and business needs.
 
 👩‍💻 Data Analysis | Typing | Basic Web Development
