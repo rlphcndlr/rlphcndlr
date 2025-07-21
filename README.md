@@ -9,9 +9,13 @@ I'm passionate about growing my knowledge in the IT industry, especially in prog
 
 
 📞 Admin Assistance | Customer Service | Chat Support
+
 🧠 Problem Solver | IT Support | Virtual Assistant
+
 👨‍💻 Web Development | Software QA Testing | Data Entry
+
 📊 Spreadsheets & Data Management | PC Configuration & Networking
+
 
 ✨ What I Bring to Your Business ✨
 
