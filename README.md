@@ -8,16 +8,24 @@ IT-focused professional with strong experience in customer support, fraud analys
 🚀 Experience
 
 ✔ 8 months as a Fraud Analyst at Concentrix
+
 ✔ Handled fraud detection, account review, and customer issue resolution
+
 ✔ Strong background in customer service and handling sensitive data with accuracy and confidentiality
+
 
 💼 Core Skills
 
 ✔ Customer Support (Chat, Email, Voice)
+
 ✔ Admin Assistance & Virtual Support
+
 ✔ Data Entry with 120 WPM typing speed ⌨️
+
 ✔ Web Development (Python, HTML, CSS, PHP)
+
 ✔ QA Testing & Basic IT Troubleshooting
+
 ✔ Spreadsheet & Data Management
 
 🛠 Tools
